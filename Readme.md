@@ -53,7 +53,7 @@ Jika ada pertanyaan atau ingin berkontribusi, silakan hubungi:
 - 🌐 Website: [www.smknmanonjaya.sch.id](https://www.smknmanonjaya.sch.id)
 -----
 
-**Made with <3 by Anszware and Alanboy**
+**Made with <3 by Anszware and Alanaboy**
 
 ---
 
